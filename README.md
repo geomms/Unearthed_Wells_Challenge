@@ -1,2 +1,2 @@
-# Unearthed_Wells_Challenge
+# Unearthed Wells Challenge
 
